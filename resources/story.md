@@ -37,6 +37,6 @@ as a dreaded queen not to trifle with. She was lustful and had many lovers, prod
   Before her death she managed to convert at least one other catholic country to freyaism, Aquitaine.
   Her daughter Auther was the jarl of Faroe, yet with her genius she conquered two other duchies in Britain.
   Katarina had her focus on her mothers goal, the kingdom of Norway. She conquered all but a little county,
-  yet in the heathens control.
+  it remains in the heathens control.
 
 3. 
